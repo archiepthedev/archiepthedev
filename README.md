@@ -50,7 +50,8 @@ With 15+ years of experience, I specialize in building scalable, user-centric so
 ## 📬 Let's Connect
 
 - Email: [archiepthedev@gmail.com](mailto:archiepthedev@gmail.com)  
-- LinkedIn: [linkedin.com/in/archie-peterson-a8aa51366](https://www.linkedin.com/in/archie-peterson-a8aa51366)
+- LinkedIn: [linkedin.com/in/archiepthedev](https://www.linkedin.com/in/archiepthedev
+)
 
 ---
 
